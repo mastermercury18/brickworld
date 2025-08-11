@@ -1,1 +1,1 @@
-my first sandbox game
+unleash your creativity by building virtual lego-inspired creations, develop real-world skills by opening your own brick shops, grow your social network with likes and followers, chase adrenaline on survival mode battling npc roboterrorists  
